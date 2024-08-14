@@ -11,3 +11,6 @@ Meu nome é **Beatriz**
 
 00001121805413SP@al.educacao.sp.gov.br
 
+![](https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExb215YWhiZTdwemMwcWF5cHRnc3B0cXJoaHJvZ2kwZnZpaWZiN2owayZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/1CrMu9a7qDkty/giphy.gif)
+
+
