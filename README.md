@@ -2,7 +2,7 @@ beatriz
 
 ### Boas Vildas ao meu perfil 🏳️‍🌈💚🤍🩶🖤
 
-Meu nome é **Beatriz** 
+Meu nome é **Beatriz (ﾉ≧∇≦)ﾉ** 
 
 **Estou estudando na Alura e me desenvolvendo na linguagem JavaScript.**
 **Uso esse espaço para minha organizaçâo e compartilhamento dos meus projetos**
