@@ -1,6 +1,6 @@
 beatriz
 
-### Boas Vildas ao meu perfil 🏳️‍🌈💚🤍🩶🖤
+### Boas Vindas ao meu perfil 🏳️‍🌈💚🤍🩶🖤
 
 Meu nome é **Beatriz (ﾉ≧∇≦)ﾉ** 
 
